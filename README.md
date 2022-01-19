@@ -6,4 +6,7 @@ Sneak peak:
 * Client dualhook? (shocker!)
 * EXTRA JUICY: Exclusive chatlogs (Paid dualhook for all who pay? :O)
 
-Stay tuned.
+Sneak peak subject to legitimacy review. I won't post fake news on this.  
+I'm not in it for a cheap lie, I want hard facts.  
+  
+Stay tuned.  
