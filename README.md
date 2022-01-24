@@ -3,6 +3,9 @@ A lot just happened. More is coming.
 
 [Archived Tweet](https://web.archive.org/web/20220124220258/https://www.twitlonger.com/show/n_1sruj97)
 
+![Oh shit oh fuck, another dualhook screenshot](https://github.com/ExtraFrisky/Byebye-Bby-2/blob/455d22d40595aef094006bd99575f13f32b50639/unknown%20(1).png?raw=true)
+
+
 # Episode 2
 Oh boy, here we go again. Coming soon™
 
