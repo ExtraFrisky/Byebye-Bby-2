@@ -5,6 +5,7 @@ A lot just happened. More is coming.
 
 ![Oh shit oh fuck, another dualhook screenshot](https://github.com/ExtraFrisky/Byebye-Bby-2/blob/455d22d40595aef094006bd99575f13f32b50639/unknown%20(1).png?raw=true)
 
+![Dualhook me daddy](https://github.com/ExtraFrisky/Byebye-Bby-2/blob/main/unknown.png?raw=true)
 
 # Episode 2
 Oh boy, here we go again. Coming soon™
