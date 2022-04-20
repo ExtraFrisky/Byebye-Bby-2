@@ -1,5 +1,7 @@
-# NEW INFO COMING.
-A lot just happened. More is coming. 
+# Update
+I have decided to not work on this, too much effort. Read the post at https://github.com/ExtraFrisky/Byebye-Bby instead.
+
+# Info
 
 [Archived Tweet](https://web.archive.org/web/20220124220258/https://www.twitlonger.com/show/n_1sruj97)
 
@@ -8,7 +10,7 @@ A lot just happened. More is coming.
 ![Dualhook me daddy](https://github.com/ExtraFrisky/Byebye-Bby-2/blob/main/unknown.png?raw=true)
 
 # Episode 2
-Oh boy, here we go again. Coming soon™
+Oh boy, here we go again. (Not) Coming soon™
 
 Sneak peak:  
 * Downtime, all the time. So much for 99.99% uptime SLA. ;) 
@@ -20,7 +22,3 @@ Sneak peak:
 
 Sneak peak subject to legitimacy review. I won't post fake news on this.  
 I'm not in it for a cheap lie, I want hard facts.  
-
-
-  
-Stay tuned.  
